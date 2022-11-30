@@ -18,4 +18,14 @@ El Real Gabinete de Historia natural de Madrid posee tambien una de estas piedra
 
 Como el peso de esta piedra era aun bastante considerable, á pesar de los menoscabos que sufrió ántes de llegar al Ministerio, para poder separar de ella algunos pedazos sin destruirla, ha ordenado S. E. que se coloque en un parage del gabinete, bien á la vista, para que todas las personas, á quienes la lectura de las obras extrangeras y esta memoria dispertasen el deseo de verla, pudiesen satisfacer su curiosidad, y para que sirva tambien de punto de comparacion con las que, en adelante, puedan llegarnos de la América ó de España misma.
 
+Comenzarémos nuestro trabajo por copiar la carta con que el Capitan General, que á la sazon era de Zaragoza, remitió la piedra de que tratamos, que seguramente está escrita con mucho juicio y exênta de preocupaciones. Dice pues:
+
+«Excelentísimo Señor = Muy Señor mio. En Noviembre último se habló en esta capital de un suceso acaecido el 17 del referido mes en la Huerta de Sena, lugar del territorio de Sixena, siendo éste, que á medio dia, estando la esfera celeste sin aparato de tempestad, se oyó por tres veces un ruido extraordinario, á cuyo sonido daban diversas explicaciones, y que en seguida habia caido una piedra de nueve libras y una onza de peso, á la inmediacion de dos hombres, que uno de ellos se acercó, y lo retrajo el olor fétido que sintió, que despues, reparado del susto, la tocó con la azada de que se servia para su labor en la tierra, que él mismo fué á poner sobre ella una mano, y la retiró por estar muy caliente, y que al fin, templándose mas, la recogió, y la llevó en su chupa á Sena, habiéndola presentado al Cura, el que se quedó con ella».
+
+«No me pareció mirar con indiferencia este fenómeno; y despues de haber hecho conversacion de él con varios sugetos de conocida erudicion, me determiné á prevenir á la justicia de Sixena, que hiciese una informacion formal del suceso, y me remitiese la piedra con seguridad de ser la misma de que se trata».
+
+«En cumplimiento de mi disposicion, me envió la informacion el Alcalde de Sixena, y la piedra en una caxa sellada con las armas del Monasterio de Religiosas del Orden de San Juan, de cuyo Señorío es el territorio, y las mismas Religiosas me enviáron otro pedacito de piedra igual á la grande, que se cree parte de ella, por medio del Recibidor de Malta en este Reyno».
+
+«Luego que tuve la informacion y el caxoncito, abrí éste en presencia del muy Reverendo Arzobispo, de Don Juan Tomás de Micheo, Regente de esta Real Audiencia, y de los Oidores de ella Don Miguel de Villava, y Don Felipe de Rivero, que la casualidad hizo que concurriesen á un propio tiempo en el Palacio de S. M. en que resido: se vió la piedra, y se discurrió sobre su especie, caida, y otras circunstancias, resultando de esta conversacion que se encargase á Don Miguel de Villava que hiciese algunas preguntas al Alcalde de Sixena».
+
 ...
